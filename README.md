@@ -10,3 +10,6 @@ kasih W kasih O kasih W, WOW KEREN WOW WOW KEREN, pemateri dari acara intrivia f
 
 ## Kesan Pesan Cluster 15 Sejauh Ini 
 Cluster yang seru sih dengan mentor yang keren dan temen-temen yang fun.
+
+## Harapan Kuliah
+Saya berharap mendapatkakn pengalaman yang menyenangkan serta dapar mengembangkan diri di FILKOM UB
